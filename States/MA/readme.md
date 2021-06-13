@@ -1,0 +1,1 @@
+notices and affidavits

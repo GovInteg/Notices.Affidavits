@@ -29,7 +29,7 @@ HIT SEND AND LET IT FLY!
 SHARE SHARE SHARE!!!! EVERYONE CAN SEND THIS NOTICE OUT. WE THE PEOPLE DEMAND AND WILL HAVE THE FINAL SAY!!!!
 
 Once you’ve mailed your Notices you will know the satisfaction of speaking for the People. Be the fighter for Liberty! Make sure to READ and LEARN what’s in this document 
-so you may share with others, by right as one of We the People! You guys are amazing Patriots in this fight for Georgia, America, if not the world, and we celebrate you 
+so you may share with others, by right as one of We the People! You guys are amazing Patriots in this fight for Florida, America, if not the world, and we celebrate you 
 for your hard work and dedication. Thank you!!
 
 This document is being used and sent nationwide to put those who the People elected to represent THEM on notice for NOT doing due diligence and the work of the People. 

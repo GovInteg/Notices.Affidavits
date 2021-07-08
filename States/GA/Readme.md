@@ -5,7 +5,8 @@
 
 WE ARE PUTTING THE GEORGIA LEGISLATURE ON NOTICE THAT WE THE PEOPLE DEMAND A FULL AND COMPLETE STATEWIDE ELECTION AUDIT
 
-DOWNLOAD DOCUMENT HERE AND PRINT THREE (3) COPIES OF THIS NOTICE ON 8½ X 14 LEGAL SIZE PAPER FOUND HERE: https://bit.ly/2SVay9f
+1.  DOWNLOAD DOCUMENT HERE AND PRINT THREE (3) COPIES OF THIS NOTICE ON 8½ X 14 LEGAL SIZE PAPER FOUND HERE: https://bit.ly/2SVay9f
+
 2. SIGN YOUR AUTOGRAPH AND DATE EACH COPY OF THE NOTICE
 
 3. SCAN ONE SIGNED NOTICE WITH A SCANNER OR PHONE APP.
@@ -16,9 +17,11 @@ Watch this to learn how to use Adobe Scan. https://youtu.be/tsDuKTnRGuU?t=94
 Keep an ORIGINAL autographed copy for yourself
 
 4. Mail your signed autographed copies to Senator Brian Strickland and Representative Chuck Efstration.  You can mail via certified return receipt and track your 
+
 5. letters if so desired which is preferable so you may track your notices.
 
 5. EMAIL: Copy all email addresses below and paste them in a new email in the BCC field. Attach a copy of your notice to the email!  This will send everyone in 
+
 6. the Georgia Legislature a copy.
 
 SUBJECT LINE: NOTICE OF DEMAND FOR GEORGIA FULL STATE FORENSIC AUDIT  

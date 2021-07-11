@@ -10,5 +10,6 @@ Link to all State Constitutions https://ballotpedia.org/State_constitution/
 Robert's Rules Online http://www.rulesonline.com/
 
 Mason's Manual of Legislative Procedure 
+
 https://www.miamidade.gov/charter/library/masons-manual-of-legislative-procedures.pdf
 https://constitutionwatch.com.au/wp-content/uploads/Masons-2010-Small-File-Size-Version-1.pdf

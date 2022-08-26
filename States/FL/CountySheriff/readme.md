@@ -1,6 +1,7 @@
 How should I send my Notice?
 
-All Affidavits should be printed on legal sized paper (8.5' x 14') but it is not absolute for Notices.  Most of these are legal size (8 x 14) usless they say letter size 
+All Affidavits should be printed on legal sized paper (8.5' x 14') but it is not absolute for Notices.  Most of these are legal size (8 x 14) and start with "FLA" usless 
+they say letter size and start wiht "Florida"
 in the title.  If you don't have legal size paper then please use leter size.  Your name and address at the top and your name on the line in the first paragraph after 
 “I”
 

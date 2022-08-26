@@ -1,8 +1,13 @@
 How should I send my Notice?
 
-All Notices should be printed on legal sized paper (8.5' x 14').  Your name and address at the top and your name on the line in the first paragraph after “I”
+All Affidavits should be printed on legal sized paper (8.5' x 14') but it is not absolute for Notices.  Most of these are legal size (8 x 14) usless they say letter size 
+in the title.  If you don't have legal size paper then please use leter size.  Your name and address at the top and your name on the line in the first paragraph after 
+“I”
 
 Autograph the last page and date it. 
+
+You should mail it to your Sheriff directly.  If for what every reason you can not do this, we will soon have an address you can send them in to and we will send them to 
+the proper offices.
 
 Idealy Notices should be sent via certified mail.  There are a few reasons why you may not do this.  One is the address, if it is a Post Office Box you will need to send 
 First Class or ask the clerk if there is any deliveray conformation options.  Certified mail can be a bit costly so you may also ask about priority signature mail. 
